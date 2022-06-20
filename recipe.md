@@ -7,3 +7,4 @@
 Juice ½ lime
 ½ tsp salt
 1 tbsp maple syrup
+add aroma for the finishing touch
